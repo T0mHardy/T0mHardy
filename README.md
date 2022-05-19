@@ -34,20 +34,20 @@ Here are some ideas to get you started:
 -->
 
 
-# Salom Bu Men Beka [BekaCoderx][youtube] 👋 
-# Hello This Men Beka  👋
+
+# Hello 👋
 
 [ ✨ YouTube Channel Subscribers ](https://www.youtube.com/channel/UCgynQvkHb3rHqTiWz097oyw)
 
-[ ✨ Instagram](https://www.instagram.com/lbeka_ake/)
+[ ✨ Instagram](https://www.instagram.com/akmaluralov01/)
 
-[ ✨ Website](https://bekacoder.netlify.app/)
+[ ✨ Website](/)
 
 [ ✨ Twitter Follow](https://twitter.com/Beka10497043)
 
-[ ✨ Telegram](https://t.me/beka_391/)
+[ ✨ Telegram]()
 
-[ ✨ VK](https://vk.com/beka_ake)
+[ ✨ VK](https://)
 
 [ ✨ Linkedin](https://www.linkedin.com/in/og-abek-khudayberdiyev-7b4897222?fromQR=1)
 
